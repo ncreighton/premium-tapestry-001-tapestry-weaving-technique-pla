@@ -1,0 +1,2 @@
+# premium-tapestry-001-tapestry-weaving-technique-pla
+You've mastered the basics of tapestry weaving, but juggling pattern notes, color swatches, technique variations, and project progress across scattered notebooks is killing your creative momentum. The Tapestry Weaving Technique Planner solves this by centralizing everything you need in one organized, beautiful Notion workspace.  This template trans
